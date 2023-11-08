@@ -1,7 +1,7 @@
 # oie ticao 🖤
 
-Tico teco ticu tucu tucano 
+bah
 
-- bacate
+- bahbacate
 
  ![](https://media.tenor.com/i7llTDaTPtUAAAAC/naruto.gif)

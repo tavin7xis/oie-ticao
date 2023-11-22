@@ -1,7 +1,7 @@
 # bahhhh gurizada 
 
-bah
+na paz de Deus 
 
-- bahbacate
+
 
  ![](https://media.tenor.com/xWorUluRD0oAAAAC/looking-around-searching.gif)
